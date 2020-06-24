@@ -10,3 +10,8 @@ durch die Serie Queen of the South, aber auch diverse andere Filme. Aktuell spie
 * School of Modern Arts New York 1985-1989
 * Engagement am Theatre of the South New York 1989-1991
 * Erste Filmengagements Alamo Studios 1992 mit Nebenrollen
+
+As Veronica Falcon said:
+
+> I've always loved the things
+> I do.
